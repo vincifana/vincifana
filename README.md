@@ -1,6 +1,6 @@
 # 🎶 Vincenzo Fanara
 
-**Compositore e artista digitale** con base a Dübendorf, Svizzera 🇨🇭  
+**Compositore e artista digitale** con base in Svizzera 🇨🇭  
 Creo musica che parla più lingue di quante riesco a contare.  
 Benvenuto nel mio spazio creativo — tra demo, vibrazioni e progetti multilingua.
 
